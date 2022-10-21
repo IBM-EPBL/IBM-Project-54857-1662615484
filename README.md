@@ -8,7 +8,7 @@
 
 Team Leader : Charles M
 
-Team member : Angel Snekha A
+Team member : Angel Sneha A
 
 Team member : Anisha S
 
